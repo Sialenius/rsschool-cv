@@ -1,5 +1,5 @@
 
-# ![[A. Sialenia.png]]Aliaksei Sialenia
+# Aliaksei Sialenia
 
 @sialenius
 aliaksei.sialenia@gmail.com
