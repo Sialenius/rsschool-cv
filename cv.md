@@ -20,7 +20,7 @@ Former basketball coach. After 11 years of coaching, I decided to focus my dedic
 ##### Codewars:
 
 ## Education
-##### Belarusian State University
+##### Belarusian State University, Faculty of Radiophysics and Computer Technologies, 2012-2017
 
 
 ## "B2" English Language Level
